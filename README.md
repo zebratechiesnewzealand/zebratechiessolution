@@ -26,11 +26,11 @@ We help startups and businesses build powerful websites, scalable software, and 
 
 ## Website
 
-https://yourwebsite.com
+https://zebratechies.com/
 
 ## Contact
 
-Email: info@yourwebsite.com
+Email: zebratechiesnewzealand@gmail.com
 
 ## Follow Us
 
